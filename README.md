@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Torrintel
-- 👀 I’m interested in Cybersecurity that's what
-- 🌱 I’m currently learning Kali Linux
+- 👀 I’m interested in Cybersecurity and boobiezz
+- 🌱 I’m currently learning how to use Kali Linux
 - 📫 How to reach me uhh well you can't cause your to short
 
 <!---
